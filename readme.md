@@ -1,0 +1,2 @@
+Hi guys Today I’m sharing my favorite variation of Maggi, Spicy Vegetable Masala Maggi or Maggi Masala made in the stovetop and Instant pot pressure cooker. This Mumbai Street Style Veg Masala Maggi recipe is a new way to add vegetables and few spices to the regular Maggi recipe and make it into a healthy dish. As this is a reciepe that i got learned from my mom and you should try it too.
+This Maggi Instant Noodles recipe is the most loved instant noodles food in India. It is loved by people of all age groups, be it kids or adults. It is the perfect snack.
